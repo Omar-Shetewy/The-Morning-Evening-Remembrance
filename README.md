@@ -1,1 +1,1 @@
-# The Morning&Evening Remembrance
+# The Morning And Evening Remembrance App
